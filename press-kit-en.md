@@ -15,7 +15,7 @@
 - Genre: Novel; contemporary historical and political fiction with a mystery spine
 - Editions: Kindle eBook (ASIN B0HHJP6KCC); paperback (ISBN 978-1-7649332-0-9); hardcover, case laminate (ISBN 978-1-7649332-1-6)
 - Length: about 380 pages, 5.5 x 8.5 in; 25 chapters plus a prologue, an author's note, a legal note, a reader warning and a "Sources and Notes" section
-- Release: autumn 2026; pre-orders open on Amazon
+- Release: October 2, 2026 (10 Mehr 2585 in the Iranian Imperial calendar, the festival of Mehregan); pre-orders open on Amazon
 - Availability: Amazon (Kindle, paperback, hardcover) and to bookshops through Ingram distribution
 - English edition: a full English translation, Keeper of Truth, is in preparation
 - Amazon author page: Aramofen
