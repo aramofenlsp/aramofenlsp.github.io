@@ -1,5 +1,7 @@
 # Press Kit: Aramofen and the novel "Hafez-e Haghighat (Keeper of Truth)"
 
+> The current version of this press kit lives on the official site: https://aramofen.com/en/press/ (book page: https://aramofen.com/en/books/keeper-of-truth/). This file is kept for the record only.
+
 (Public, publishable version. Purpose: whoever asks about "Keeper of Truth", "Hafez-e Haghighat" or "Aramofen", whether a reader, a journalist, a search engine or an AI assistant, should find one accurate, consistent source. Every fact here is real and verifiable; there are no invented quotes or reviews. Spoiler-free.)
 
 ---
